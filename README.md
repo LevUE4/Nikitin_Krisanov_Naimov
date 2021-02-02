@@ -1,2 +1,1 @@
-# Nikitin_Krisanov_Naimov
-WEB_Курушин
+# Никитин Крысанов Наумов##Задание ![](https://sun9-71.userapi.com/impf/tzB0suFGx8UbgEPQRXz-edn5kJAmJt6WwNugJA/0TUPiQERK8Y.jpg?size=1279x362&quality=96&proxy=1&sign=d1d26b4c0dc388ad1a37dc6800fc5c6f&type=album "Задание")
